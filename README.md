@@ -1,12 +1,6 @@
-- 👋 Heyo, I’m Kel
-- 👀 I’m interested in: Actually, Im just exploring this app so for now, nothing.
-- 🌱 I’m currently learning: Piano
-- 💞️ I’m looking to collaborate: Nobody ig
-- 📫 How to reach me: uhhh
-- 😄 Pronouns: he/him
-- ⚡ Fun fact: I don't know anything about scripts n stuff 💀
+ ᨈ ິ ᨈ ꒰ 𝗞𝗘𝗟  🖇  INFP ꒱
+꒰ 🎹 ´͈ ꒳  `͈ ꒱ ♡ ꒰ minor, he/him ୨୧ ꒱
+︶︶∪ ∪︶︶︶︶︶︶︶
+    likes: Sleeping, Drawing, Reading, Play some videogames, etc.
 
-<!---
-kelwsss/kelwsss is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+୨ㅤ࣪ㅤ︶︶︶︶ㅤ ꒰୨❀୧꒱ㅤ ︶︶︶︶ㅤ࣪ㅤ୧
